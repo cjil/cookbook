@@ -15,7 +15,7 @@ A classic American-style BBQ rub with simple pantry spices, built to enhance the
 ## Ingredients
 
 Measurements are based on 1 kg of meat
-- 1 tsp coarse sea salt
+- 2 tsp coarse sea salt
 - 1 tbsp black pepper
 - 1 tbsp garlic powder
 - 1 tsp dry mustard powder

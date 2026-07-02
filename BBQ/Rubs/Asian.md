@@ -16,7 +16,7 @@ This rub blends bold barbecue seasoning with Asian-inspired aromatics, giving gr
 
 Measurements are based on 1 kg of meat
 - Pork:
-  - 1 tsp coarse sea salt
+  - 2 tsp coarse sea salt
   - 1 tbsp Chinese five spice
   - 1 tbsp garlic powder
   - 2 tsp ginger powder
